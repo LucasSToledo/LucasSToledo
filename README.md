@@ -5,7 +5,7 @@
 - 📫 How to reach me:
 - email: contactolucastoledo@gmail.com
 - IG: toledo.lucass
-- FB: I'm not going to give you my facebook, I don't use it and there are photos from when I was ugly ... well I still am ...- Forget it.
+- FB: I'm not going to give you my facebook, I don't use it and there are photos from when I was ugly ... well I still...- Forget it.
 
 <!---
 LucassToledo/LucassToledo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
