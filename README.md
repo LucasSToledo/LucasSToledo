@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... I have no idea, I help with projects that are interesting to me. But mostly they don't need code.
 - 📫 How to reach me:
 - email: contactolucastoledo@gmail.com
-- IG: toledo.lucass
+- IG: eltiolucas.eth
 - FB: I'm not going to give you my facebook, I don't use it and there are photos from when I was ugly ... well I still...- Forget it.
 
 <!---
